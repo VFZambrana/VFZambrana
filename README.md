@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Fabrizio
-- 👀 Me interesa jugar
+- 👀 Me interesa nadar 🤿
 - 🌱 Por lo general no salgo
 
 <!---
